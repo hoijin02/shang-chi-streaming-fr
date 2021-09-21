@@ -1,4 +1,3 @@
-# shang-chi-streaming-fr
 REGARDER-COMPLETs* SHANG-CHI Film Streaming-vf Gratuit en Français 2021
 ==============================================================================================
 
